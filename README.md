@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @skarmori
 - 👀 I’m interested in becoming an evil corporate executive
 - 🌱 I’m currently learning about business, coding, and fitness
-- 💞️ I’m looking to collaborate on anything diabolical or perhaps dubious in nature
+- 💞️ I’m looking to collaborate on anything evil or bad 😈
 - 📫 How to reach me: jeffreyqian12@gmail.com
 
 <!---
